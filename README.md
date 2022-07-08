@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Surin-p
-- 👀 I’m interested in reading bl.
 - 🌱 I’m currently learning Bsc Hons computing.
 - 💞️ I’m looking to collaborate lets see.
 - 📫 How to reach me through mail.
